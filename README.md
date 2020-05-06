@@ -19,9 +19,11 @@ Hoje vamos falar de um assunto que ta dando o que falar: Masculinidade Negra.
 Para colaborar com isso tudo temos aqui as vozes que vocês nunca se cansam de ouvir! Salve x, salve y, salve z.
 
 -------------------------------- Caso haja convidado --------------------------------
+
 Também temos um convidado ilustre por aqui e sepa vocês até sabem quem quem é, vou dar um salve pra ele e ele se apresenta para vocês, fechou? Salve, salve x!
 
 [Convidado se apresenta]
+
 -------------------------------- Caso haja convidado --------------------------------
 
 Não se esqueça de dar 5 estrelas no nosso iTunes porque ajuda a colocar o podcast em destaque e não deixe de comentar este episódio em nosso facebook, soundcloud, spotify e também no twitter, ou se preferir, mande um email pra gente no quebradev@gmail.com que a gente não vai te responder!
