@@ -1,4 +1,4 @@
-# Template para pautas de Podcasts
+# Template para Pautas de Podcasts
 
 O objetivo deste documento é o compartilhamento do formato de template de pauta que nós utilizamos para fazermos nossos episódios.
 
